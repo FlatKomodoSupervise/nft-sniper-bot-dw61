@@ -1,4 +1,4 @@
-# 
+# smart nft sniper bot | NFT-sniping + arbitrage-opportunities is the best nft sniper bot, featuring NFT-sniping and arbitrage-opportunities. Fast, smart, and optimized for NFT
 
 
 
